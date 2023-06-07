@@ -1,3 +1,5 @@
-# lele
+# Hubungi kembali
+- <strike>+62 816-931-580 ~Lidia Zhang</strike>
 
-- +62 816-931-580 ~Lidia Zhang
+# Pesanan
+- Ruby 1kg
