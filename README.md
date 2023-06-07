@@ -3,5 +3,5 @@
 - Elly +62 895-6007-39998 (mama ruby)
 
 # Pesanan
-- Ruby 1kg
+- Ruby 1kg (dah bayar)
 - Tantenya Carsten 2kg
